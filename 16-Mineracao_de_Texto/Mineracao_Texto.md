@@ -1,0 +1,16 @@
+
+# Mineração de Textos
+
+
+
+
+
+
+
+
+
+
+
+
+
+
